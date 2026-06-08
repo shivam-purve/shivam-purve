@@ -14,7 +14,7 @@
 
 🎓 **B.Tech in Computer Science & Engineering** at **IIT Tirupati**
 
-🏆 **Branch Topper (CSE)** | **CGPA: 9.17/10**
+🏆 **Branch Topper (CSE)** | **CGPA: 9.12/10**
 
 🤖 **Undergraduate Researcher @ RISHA Lab, IIT Tirupati**
 
